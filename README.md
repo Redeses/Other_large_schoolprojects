@@ -1,4 +1,4 @@
-# Other_large_schoolprojects
+# Other_large_pojects
 
 # Original Limsamaatti 2020
 
